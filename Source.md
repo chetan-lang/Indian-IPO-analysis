@@ -1,0 +1,12 @@
+https://www.cnbctv18.com/
+https://www.livemint.com/
+https://pulse.zerodha.com/
+https://economictimes.indiatimes.com/markets
+https://www.bseindia.com/markets/publicissues/ipoissues?expandable=4&id=1&Type=p
+https://www.nseindia.com/market-data/all-upcoming-issues-ipo
+https://www.ipoplatform.com/
+https://www.investorgain.com/
+https://ticker.finology.in/IPO
+https://www.screener.in/ipo/
+https://primedatabase.com/pub_demo.asp
+https://finance.yahoo.com/research-hub/screener/
